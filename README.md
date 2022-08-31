@@ -9,7 +9,7 @@
 
 - 📫 How to reach me: **sabiha2k15@gmail.com**
 
-- 📄 Know about my experiences: I have worked as a junior software engineer at a Japan-based company
+- 📄 Know about my experiences: I am working as a software engineer
 
 - ⚡ Fun fact: **I love to listen music and watching series from different countries**
 
